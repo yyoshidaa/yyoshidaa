@@ -1,4 +1,4 @@
-## Hi there 👋
+<img width="400" height="500" alt="image" src="https://github.com/user-attachments/assets/dae97199-760e-4393-bacf-67dd53346cd9" />
 
 <!--
 **yyoshidaa/yyoshidaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
