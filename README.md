@@ -1,4 +1,5 @@
 <img width="400" height="500" alt="image" src="https://github.com/user-attachments/assets/dae97199-760e-4393-bacf-67dd53346cd9" />
+
 aww Bri thank you so much for adding me in your lovemail i love you♡ if i ever make a lovemail too i'll make sure to add you first!! LOVE YOUU (if im your bully then i will do my job and bully you)
 <!--
 **yyoshidaa/yyoshidaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
