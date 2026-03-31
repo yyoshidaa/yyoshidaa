@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=yyoshidaa&color=010203)
 
-<img width="400" height="500" alt="image" src="https://github.com/user-attachments/assets/dae97199-760e-4393-bacf-67dd53346cd9" />
+<img width="200" height="300" alt="image" src="https://github.com/user-attachments/assets/dae97199-760e-4393-bacf-67dd53346cd9" />
 
 
 <!--
