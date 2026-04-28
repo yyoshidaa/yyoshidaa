@@ -1,5 +1,3 @@
-![](https://komarev.com/ghpvc/?username=yyoshidaa&color=010203)
-
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FFFFFF&width=435&lines=I+like+Yoshida+" alt="Typing SVG" /></a>
 
 <img width="200" height="300" alt="image" src="https://github.com/user-attachments/assets/dae97199-760e-4393-bacf-67dd53346cd9" />
